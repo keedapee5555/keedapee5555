@@ -1,9 +1,5 @@
-- 👋 Hi, I’m @keedapee5555
-- 👀 I’m interested in funds tranfer...
-- 🌱 I’m currently learning how to do thai...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
- 👋 Hi, I’m @keedapee5555 🌱 I’m currently learning 
-< 💞️ I’m looking to collaborate  on how to actually get funding in my accouns 💞️ I’m looking to collaborate on funds transfer !---
-keedapee5555/keedapee5555 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile. take a look at your changes.
---->
+👋 Hi, I’m @keedapee5555
+I'm new and looking to collaborate on acquiring funding
+whoever helps me acquire funding in my accounts $keishadaenean (cashapp) or my gpay at the
+link below i will break bread https://gpay.app.goo.gl/9F2MfN 
+Remember im new and open to all help and suggestions !!!!
